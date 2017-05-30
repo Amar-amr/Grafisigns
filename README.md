@@ -1,3 +1,3 @@
 # Grafisigns
-Web Design
-Happy To learn New Things
+Web Designer
+ I am Happy To learn New Things
